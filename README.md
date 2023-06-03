@@ -1,2 +1,2 @@
 # Richard Chiodo
-- https://www.layer8.in/portfolio
+- http://www.layer8.in/portfolio
